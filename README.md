@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @duoiuoicai
-- 👀 I’m interested in something
+- 👀 I’m interested in things
 - 🌱 I’m currently learning how to code
