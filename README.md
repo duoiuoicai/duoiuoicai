@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @duoiuoicai
+- 👋 Hi, I’m Frisk
 - 👀 I’m interested in things
 - 🌱 I’m currently learning how to code
